@@ -6,3 +6,4 @@
 
 •	Evaluated areas for improvements by performing data analysis and crafted recommendations for increased online optimisation.
 
+<img width="716" alt="image" src="https://user-images.githubusercontent.com/34002696/175611236-ba803734-1df6-42c8-95f8-679467f596d7.png">
